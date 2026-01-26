@@ -1,1 +1,1 @@
-沈阳农业大学.吴禹熹
+Shenyang Agricultural University, Wu Yuxi
