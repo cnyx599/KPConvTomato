@@ -1,3 +1,3 @@
-Shenyang Agricultural University, Wu Yuxi.
+Shenyang Agricultural University, Yuxi Wu.
 
 More resources are being uploaded now.
