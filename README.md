@@ -1,5 +1,5 @@
 Shenyang Agricultural University, Yuxi Wu.
 
-More resources are being uploaded now.
+We have uploaded the code and some sample data, and more resources are being uploaded.
 
 If you have any questions, please contact cnyx599@163.com directly.
